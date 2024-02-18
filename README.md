@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning B.tech agri engg
 - 💞️ I’m looking to collaborate on my charity foundation
 - 📫 How to reach me mdivyadharshini860@gmail.com
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: Being she 
+- ⚡ Fun fact: I can't handle scary movies !!
 
 <!---
 DD0411/DD0411 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
